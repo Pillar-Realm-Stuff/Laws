@@ -1,0 +1,2 @@
+# Laws
+Законы Pillar Realm
